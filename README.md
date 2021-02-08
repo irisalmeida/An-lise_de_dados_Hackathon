@@ -10,5 +10,4 @@ https://www.figma.com/file/hUNBWqvDuZNCrtN3matqRX/Stop-One---Provi-Hack-Woman?no
 Confira a Demo da solução:
 https://www.youtube.com/watch?v=ja9_YgRLbG4&feature=youtu.be
 
-Confira o Pitch da solução:
-https://www.youtube.com/watch?v=MJYHzGP41m8&feature=youtu.be
+
